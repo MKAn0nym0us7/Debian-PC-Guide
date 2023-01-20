@@ -88,6 +88,6 @@ Send Computer To Customer And Send Charger Lindy Port Blocker Keys And Password 
 
 https://minifree.org/
 
-Bitcoin Donations
+Bitcoin Donation
 
 37cx9ig2PNANMjnD9dopeX3uqrYqAoy2JR
